@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Html and Css 
 - 💞️ I’m looking to collaborate on anyone available to take me through 
 - 📫 How to reach me kentpual0@gmail.com
-- 😄 Pronouns: i'm a Young Boy 🤗
+- 😄 Pronouns: HIM🤗
 - ⚡ Fun fact: Learning hasn't been easy but having the right tutor is easier 🎉
 
 <!---
